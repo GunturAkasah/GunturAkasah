@@ -1,4 +1,9 @@
-![lambo](https://user-images.githubusercontent.com/123539384/216864871-eaac8ed7-ced8-4578-9a25-563618aef079.gif) Ⅶ  🀧  ✟ 
+![lambo](https://user-images.githubusercontent.com/123539384/216864871-eaac8ed7-ced8-4578-9a25-563618aef079.gif)
+(https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjG4RBYdsYVf66QKc__O0j5JmfAMPH8x8xFmV7PBkw6BBW8uaP8_3jI-j-Vd59iSp032Ccj80zQL1lvqPLD9THVQa0z4U7QfLVIyrIN0EpWEzVdokfjMj5dJicQeLe9II76wlNh_RQyn4kZ_51VHk-mrlYhJbuKOqDrDbGu2h43sJkFU_ecZDbnqoojzUI_/w640-h360/1portogun.PNG)
+(https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSQ2YUsKew_5c4PzwV9_aCLowh2PcdbadTaQinPKNj9VRwAVnJ32cfsK4jJ8odXXzxpzi0-tJnl14z7wSOhDej0mSASx-P1VlrmTMk2v_WPi7GHIkyt1s9S53stfm-98Taosw6pdziu7-sKXfM8emvUJHHJJk-zViqTF8xayOUA6aPN1XfrZ4UvWMSNGwu/w640-h354/2portogun.PNG)
+(https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-TBPQMaZkz76TAmVonXstosuzLKrfQm3BGMI2h81TeeAjFqzztUE-yVK3bWupX0dR_W9wnT7XqKQx0FWu1G5pTopylWTNibmbBw6K-u7zVKphL5qiMhEZKe3DO55vGNi-QUQU9qKS4h-to1AR37P7AaJOnUek8KjmuxU70Zap8flHBXuD9sFfaGUqiRpu/w640-h358/3portogun.PNG)
+(https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEioH-pCUKBnIW9va_iylm_JMpmJDUatMwsH6XB4LALZKpTlumo2L1BDNpMSi1saaBxiQOJFMu_Ygf8ESY3D_p96N0xH5rc8LFTVMM6x7GNP4GeAOJ-4Otn2YFqqwg8AQfKILEw73frmHeNJL_hw0xR1LqedaCrl6kVeX4m-DwxJ9Bcdm3A-zPMC7uJw2G9j/w640-h362/4portogun.PNG)
+Ⅶ  🀧  ✟ 
 
 
 
